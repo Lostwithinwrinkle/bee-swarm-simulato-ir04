@@ -1,4 +1,4 @@
-
+bee swarm simulator Scripts rare offers the most advanced bee swarm simulator Script, with auto-upgrade and one-hit kill. Perfect for dominating any
 
 
 
